@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Francois-dt. I'm not really Newton; it's a joke. Newton has been dead for like 200 years... Sorry to announce that.
+- 👋 Hi, I’m @Francois-dt. I'm not really Newton; it's a joke. Newton has been dead for like 300 years... Sorry to announce that.
 - 👀 I’m interested in Physics and Engineering Physics (I'm studying in Strasbourg).
 - 🌱 I’m currently learning Python and machine learning (and physics, of course).
 - 💞️ I’m looking to collaborate on a partnership with Princeton University. (But I'm French and not that great at math lol.) (And, I have a girlfriend; lady physics. It's a choice. Not mine...)
