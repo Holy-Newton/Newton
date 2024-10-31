@@ -15,6 +15,8 @@ Also, don’t worry about the math thing. Sounds like you're putting in some ser
 
 -🏛️ Sooo... Princton. I'm maybe to much for you... I will look for Paris Sorbonne university !
 
+WOW,this intro is so heavy that time flows slower when you read it…
+
 <!---
 Francois-dt/Francois-dt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
