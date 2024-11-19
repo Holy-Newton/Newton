@@ -1,5 +1,7 @@
 👋 Hi, I’m @Holy-Newton. I’m not actually Newton; it’s a joke. Newton’s been dead for, like, 300 years… Sorry if that’s news to you.
 
+💁‍♂️ Seriously I'm François, 21 years old, alive for the moment. (he, more serious sundently ?)
+
 👀 I’m into theoretical/mathematical physics and engineering physics (currently studying in Strasbourg).
 
 🌱 I’m learning simulation in Python and machine learning (oh, and physics, obviously)(Quantum physics, statistical physics, wave theory soon, and holy gosh... our world is just sooo cool, wonderful and coherent. why that ? that's the question of my life. I just want to now what the "creator" had in mind.)
@@ -20,7 +22,7 @@ Oh, and ChatGPT totally loved my intro:
 
 🏛️ So, Princeton… maybe I’m a little too much for you. I might just try Paris Sorbonne University instead!
 
-WOW,this intro is so heavy that time flows slower when you read it…
+WOW,this intro is so heavy that time flows slower when you read it… (In real life I don't do lot of jokes like that, mao)
 
 <!---
 Francois-dt/Francois-dt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
