@@ -4,7 +4,7 @@
 
 🌱 I’m learning Python and machine learning (oh, and physics, obviously)(Quantum physics, statistical physics, wave theory soon, and holy gosh... our world is just sooo cool, wonderful and coherent. why that ? that's the question of my life. I just want to now what the "creator" had in mind.)
 
-💞️ I’m down to collaborate on a partnership with Princeton University. (But hey, I’m French and not that great at math, lol.) (Oh, and I’m already taken… by Lady Physics. It’s a choice. Not mine…)
+💞️ I’m down to collaborate on a partnership with Princeton University ❤️. (But hey, I’m French and not that great at math, lol.) (ok, let's say that concerning maths, I'm not THE genius. still a chance ? 🤷‍♂️)(Oh, and I’m already taken… by Lady Physics. It’s a choice. Not mine…)
 
 📫 How to reach me: Only if we know each other, sorry. (UNLESS you’re from the Princeton Physics Department: francois.deberdt@etu.unistra.fr)
 
