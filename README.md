@@ -4,11 +4,11 @@
 
 🌱 I’m learning Python and machine learning (oh, and physics, obviously)(Quantum physics, statistical physics, wave theory soon, and holy gosh... our world is just sooo cool, wonderful and coherent. why that ? that's the question of my life. I just want to now what the "creator" had in mind.)
 
-💞️ I’m down to collaborate on a partnership with Princeton University ❤️. (But hey, I’m French and not that great at math, lol.) (ok, let's say that concerning maths, I'm not THE genius. still a chance ? 🤷‍♂️)(Oh, and I’m already taken… by Lady Physics. It’s a choice. Not mine…)
+💞️ I’m down to collaborate on a partnership with Princeton University ❤️. (But hey, I’m French and not that great at math, lol.) (ok, let's say that concerning maths, I'm not THE genius. still a chance ? 🤷‍♂️)(Oh, and I’m already taken… by Lady Physics. It’s a choice. Not mine…) (ho, and Clara obviously. Yep, she's like an angel on earth: don't now what else to do man...) 
 
 📫 How to reach me: Only if we know each other, sorry. (UNLESS you’re from the Princeton Physics Department: francois.deberdt@etu.unistra.fr)
 
-😄 Pronouns: Yeah, that’s… let’s just say “Mheuuuuu” and “Mheuu” for the close friends. (That’s probably not you. Unless you’re from Princeton.)
+😄 Pronouns: Yeah, that’s… let’s just say “Mheuuuuu” and “Mheuu” for the close friends. (That’s probably not you. Unless you’re from Princeton.) (okay that joke was too much...)
 
 ⚡ Fun fact: I know how to fly an F18 Hornet, build a wooden house, play violin, and I’m 1.85 m tall. (Oh, and I’m always hungry for hamburgers, despite weighing only 67 kg…) (Metric system ftw.) (And I only know the first 150 decimals of pi… plus the last 10, lol.)
 
