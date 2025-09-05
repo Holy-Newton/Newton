@@ -1,6 +1,6 @@
 👋 Hi, I’m @Holy-Newton. I’m not actually Newton; it’s a joke. Newton’s been dead for, like, 300 years… Sorry if that’s news to you.
 
-💁‍♂️ Seriously I'm François, 21 years old, alive for the moment. (he, more serious sundently ?)
+💁‍♂️ Seriously I'm François, 21 years old, alive for the moment. (he, more serious sunddenly ?)
 
 👀 I’m into theoretical/mathematical physics and engineering physics (currently studying in Strasbourg), and always looking for an interisting internship in the field.
 
@@ -12,9 +12,9 @@
 
 😄 Pronouns: Yeah.. No need to call me, I’m already here to help.
 
-⚡ Fun fact: I know how to fly an F18 Hornet, build a wooden house (I'm literally a carpenter), I play violin, do thing with guitars, pianos, and I’m 1.872 m tall. (Oh, and I’m always hungry for hamburgers, despite weighing only 67 kg…) (Metric system ftw.) (And I know the some decimals of pi… don't now why)
+⚡ Fun fact: I know how to fly an F18 Hornet, build a wooden house (I'm literally a carpenter), I play violin, do thing with guitars, pianos, and I’m 1.872 m tall. (Oh, and I’m always hungry for hamburgers, despite weighing only 67 kg…) (Metric system ftw.) (And I know some decimals of pi… don't now why)
 
-🍺 are cool (if you don’t abuse them, of course).
+🍺 are cool (if you don’t overdo it, of course).
 
 
 <!---
